@@ -1,4 +1,4 @@
 ---
-title: (A review of)(Progress? using) New Masters Academy's Drawing Foundations course, by an actual unskilled untalented beginner.
+title: Follow along as I learn to draw
 ---
 Or, welcome to my midlife crisis.
